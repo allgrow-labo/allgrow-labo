@@ -12,5 +12,4 @@ Công ty mang tên ALLGROW chứa đựng những tình cảm mong muốn bất 
 
 Để có thể truyền tải tình cảm này, chúng tôi luôn nỗ lực hết mình để tạo ra sản phẩm tốt nhất.
 
-Website công ty chúng tôi: (http://allgrow-labo.jp/vn/)[http://allgrow-labo.jp/vn/]
-
+Website công ty chúng tôi: [allgrow-labo.jp/vn/](http://allgrow-labo.jp/vn/)
